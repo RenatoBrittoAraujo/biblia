@@ -1,10 +1,12 @@
 # O Rosário da Santa Igreja Católica
 
-O rosário surgiu a partir de monges, que rezavam os 150 salmos de uma vez.
+O Rosário surgiu a partir de monges, que rezavam os 150 salmos de uma vez. Para os analfabetos, foi adaptada uma oração dos monges mas rezando 150 Ave Marias.
 
-O rosário tem poder. É a reza mais importante.
+O Rosário tem poder. É a reza mais importante.
 
-Terço < Rosário < Oração dos monges
+O Rosário é pra ser rezado inteiro sem pausas e de joelhos. A reverência no rosário é importante, não comer palavras nem ficar acelerando a reza. 
+
+O Rosário de joelhos também funciona como penintência à ser ofertada, porque dói.
 
 # Estrutura Terço/Rosário
 
